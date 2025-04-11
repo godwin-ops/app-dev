@@ -30,10 +30,10 @@
 
 ### 🧪 Themes & Elements
 
-- 👾 Parallel dimensions  
-- 🔬 Government experiments  
-- ❤️ Friendship & loyalty  
-- 🌌 Retro pop culture
+- 👾 Parallel Dimensions  
+- 🔬 Government Experiments  
+- ❤️ Friendship & Loyalty  
+- 🌌 Retro P)op Culture
 
 ---
 
